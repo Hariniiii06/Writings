@@ -1,4 +1,4 @@
-                                               "WOMENS AND THERE INSECURITES"
+                                               "WOMENS AND THERE INSECURITIES"
                                                
 In a world that constantly defines how women should look, act, speak, or even dream — many women carry the weight of insecurities shaped by society, culture, and comparison. But within that same world, they also rise with power, resilience, and unapologetic confidence.
 
